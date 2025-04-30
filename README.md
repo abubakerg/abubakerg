@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Web development**
 
-- 📫 How to reach me **abubaker.ghaffar077@gmail.com**
+- 📫 How to reach me **m.abubakerg28@gmail.com**
 
 - ⚡ Fun fact **My secret guilty pleasure is watching Netflix,TV or film back to back all day**
 
